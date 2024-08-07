@@ -1,1 +1,1 @@
-I'm just a tech
+just a tech
